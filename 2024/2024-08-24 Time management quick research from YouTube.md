@@ -6,7 +6,7 @@ Since this could be useful for someone in the future (including future me), I de
 
 Speaking of time management, I'm making a note of when I started all of this, and when I finished:
 Start: 16:20
-Finish: 
+Finish: 18:20 (but I did a few more things during this)
 
 ## 1. [The Philosophy of Time Management | Brad Aeon | TEDxConcordia - YouTube](https://www.youtube.com/watch?v=WXBA4eWskrc)
 
